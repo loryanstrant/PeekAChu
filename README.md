@@ -7,3 +7,4 @@ If anything, this repo pays homage to the awesomeness that is her and the fact t
 You can also find some pics where we've tried to hijack the hashtag #PeekAChu on Twitter: https://twitter.com/hashtag/PeekAChu
 
 Be respectful, be courteous, and remember that this is public.
+When uploading a photo, please try to provide context and a link where possible.
